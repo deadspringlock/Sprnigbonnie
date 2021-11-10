@@ -1,0 +1,4 @@
+- Hi, I’m @Sprnigbonnie
+- I’m interested in FNAF
+- I’m currently learning the FNAF lore
+- I’m coding FNAF
