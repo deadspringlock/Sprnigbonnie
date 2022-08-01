@@ -1,4 +1,4 @@
 - Hi, I’m @Sprnigbonnie
-- I’m interested in FNAF
-- I’m currently learning the FNAF lore
-- I’m coding FNAF
+- I’m interested in Mario, Minecraft and FNAF
+- I’m currently having a Minecraft SMP
+- That's it
